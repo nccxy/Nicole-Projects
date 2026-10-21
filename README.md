@@ -1,1 +1,1 @@
-# Financial-Odyssey
+# Nicole's Projects
